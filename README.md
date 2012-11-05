@@ -1,1 +1,1 @@
-salafi
+khan
